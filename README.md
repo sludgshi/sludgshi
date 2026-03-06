@@ -1,1 +1,1 @@
-![](https://cdn.discordapp.com/attachments/1380193581356154993/1477438556879323277/Screenshot_2026-02-17_183650.png?ex=69a4c361&is=69a371e1&hm=5087e50a5aa29efeb7e6be89fe5dd975023e4b839c03b49053430eae2c79dfc0&)
+![](https://media.discordapp.net/attachments/1380193581356154993/1471906393953927308/blinkiesCafe-Pr.gif?ex=69ac52a7&is=69ab0127&hm=7718967b478c6ccadf60ddcef759c7ab87cdc4503c0518cb4171400947253ae4&=&width=124&height=70)
